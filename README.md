@@ -43,7 +43,7 @@ The surrounding location deserves attention as well. Visiting the project can pr
 For current project information, buyers can Visit the official CRC The Peridona project page.
 https://crcgroup.in
 CRC The Peridona represents the luxury segment of CRC Group's residential portfolio. The group's other projects offer different configurations and residential settings, giving prospective buyers several developments to compare.
-Readers can explore CRC Maesta, CRC Joyous and CRC Sublimis to learn more about CRC Group's residential projects.
+Readers can explore CRC Maesta https://www.crcgroup.in/maesta/, CRC Joyous https://www.crcgroup.in/joyous/ and CRC Sublimis https://www.crcgroup.in/sublimis/ to learn more about CRC Group's residential projects.
 Each development has its own planning approach, location, apartment configurations and amenity mix. Comparing these factors can help buyers understand how the different projects address varying space and lifestyle requirements.
 For information about CRC Group's broader property portfolio and current developments, readers can Visit the official CRC Group website. Those looking for project information, site-visit assistance or other property enquiries can also Contact the CRC Group team.
 A Considered Approach to Luxury Residential Living
